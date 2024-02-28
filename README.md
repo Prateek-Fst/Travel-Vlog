@@ -34,5 +34,4 @@ Feel free to explore the destinations by clicking on the provided links. Watch v
 Check out the introduction video [here](https://drive.google.com/file/d/1NdBSb-zipPEEv-yCe9eFHqx6V8FqReMt/view?usp=share_link).
 
 &copy; 2024 My Travel Blog. All rights reserved.
-  Hii , My name is Prateek . 
-  Hii , my name is prateek 
+ 
